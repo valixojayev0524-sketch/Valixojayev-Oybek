@@ -1,1 +1,1 @@
-# Valixojayev-Oybek
+# Hi I am Oybek new developer <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExeG4ybDRqYXEwc2hpMmh2MTRqanptbDhrOXZtbGl1anhrMHhyOWFxZiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/WLI9aB0Hvw8jEUjlN8/giphy.gif" with="50px">
